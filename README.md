@@ -1,1 +1,0 @@
-# daalhof-retirement-home-terrorist
